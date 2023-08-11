@@ -1,1 +1,0 @@
-# arus.simanjuntak.github.io
